@@ -7,7 +7,7 @@ Kraft Mac and Cheese is my favorite thing to eat no matter how much I have it an
 - **Cook:** 8 minutes
 - **Total:** 13 minutes
 - **Servings:** About 3
-- **Total Cost:** $3.15
+- **Total Cost:** $6.15
 ## Ingredients 
 
 ## Directions
